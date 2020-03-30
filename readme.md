@@ -1,1 +1,1 @@
-about storage's nowledge
+about storage's knowledge
